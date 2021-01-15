@@ -4,5 +4,8 @@ The following videos were posted by Parler users in the greater DC area over the
 
 [AmVOZeAY7tjF](https://sendvid.com/rxr9nks9)
 
-[3ZXOHhUdKlYd]()
+[adtV4zbkXr5x](https://sendvid.com/9avr0y9s)
 
+[ai8AzhEoyrGX](https://sendvid.com/060m6rdz)
+
+[aBf5G5aaPDj9](https://sendvid.com/0hcfp6wv)
