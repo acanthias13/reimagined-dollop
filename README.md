@@ -51,3 +51,23 @@ The following videos were posted by Parler users in the greater DC area over the
 [6VYEdaOOP3hD](https://sendvid.com/4pqqrpjc)
 
 [6JbG6I0FrJhn](https://sendvid.com/539zdrnq)
+
+[6FY6c0d8IMjz](https://sendvid.com/w6l0g88n)
+
+[64mhsecOOjLa](https://sendvid.com/5s6pyq9x)
+
+[6X2ZhStzVa3k](https://sendvid.com/p6w5sz5g)
+
+[63ExNlmUp31h](https://sendvid.com/ugxnjhwz)
+
+[50d3X1juOHK8](https://sendvid.com/mdyq24o4)
+
+[5kf2savkefB7](https://sendvid.com/zd4iq6y8)
+
+[5GIdUYtOQZvC](https://sendvid.com/jvmq8ejk)
+
+[5lmXbMBh57vI](https://sendvid.com/dg4wlxy8)
+
+[55IZysHw38wO](https://sendvid.com/4lywplek)
+
+
