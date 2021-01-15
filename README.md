@@ -104,3 +104,8 @@ The following videos were posted by Parler users in the greater DC area over the
 
 [0pHHD2IPnGI5](https://sendvid.com/jsgt6e51)
 
+[0P57ekyl4BgA](https://sendvid.com/b0nv6dsd)
+
+[1Ta9ZdFfiNrZ](https://sendvid.com/2021idzm)
+
+[0jaHRfXYTxdk](https://sendvid.com/c1zx72ht)
