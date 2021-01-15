@@ -72,3 +72,7 @@ The following videos were posted by Parler users in the greater DC area over the
 
 [535LGMMm0KtE](https://sendvid.com/4kliibuq)
 
+[4BN8CUCRxXuI](https://sendvid.com/k09u6b8d)
+
+[4AquVMy2oe6C](https://sendvid.com/inr23k6o)
+
