@@ -32,3 +32,12 @@ The following videos were posted by Parler users in the greater DC area over the
 
 [9bJLFfPeZlk8](https://sendvid.com/i5z0g7s7)
 
+[7WJTCduTUKpl](https://sendvid.com/vs6lh0ek)
+
+[8vAuY7nxkr6M](https://sendvid.com/q2od214x)
+
+[8fsC1EfPO70k](https://sendvid.com/vpacr640)
+
+[7n9O8ZT8uXvQ](https://sendvid.com/zw1ad0wd)
+
+[8c4mOel34hEc](https://sendvid.com/whmkysqg)
