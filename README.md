@@ -24,3 +24,11 @@ The following videos were posted by Parler users in the greater DC area over the
 
 [99Z6yIaTknNG](https://sendvid.com/vu3x3g22)
 
+[8YA6CeYMxHh4](https://sendvid.com/xj0avyp2)
+
+[99Z6yIaTknNG](https://sendvid.com/zxrlhpjz)
+
+[a6R6xt7VEDuE](https://sendvid.com/u2ofqyzq)
+
+[9bJLFfPeZlk8](https://sendvid.com/i5z0g7s7)
+
