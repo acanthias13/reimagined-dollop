@@ -61,3 +61,23 @@
 [x9k3Cy14CSkF](https://sendvid.com/jfgrccr1)
 
 [X9301RyNxl2u](https://sendvid.com/s72vtz3s)
+
+[x8vmLFDDM1IM](https://sendvid.com/55sayjqs)
+
+[WYkjlMj5VqBl](https://sendvid.com/qmf2ik6u)
+
+[WXkILSGX6H82](https://sendvid.com/yxvbiusm)
+
+[wsRe9EYoao7V](https://sendvid.com/gfsd891g) *breaching doors*
+
+[wQZ0XA36Xpih](https://sendvid.com/2gpiudw5)
+
+[WOR0K16Wbi2I](https://sendvid.com/1axtpxh7)
+
+[Wm6o3hXiTzPa](https://sendvid.com/4fu8huil)
+
+[wCbOT5Lhqo7n](https://sendvid.com/2038uw4u) *yelling at cops*
+
+[WaNexB6Lznsq](https://sendvid.com/pl603n13)
+
+[wItTIbLfoXBY](https://sendvid.com/4ds5s79h)
