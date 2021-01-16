@@ -1,7 +1,5 @@
 ## Second batch of videos
 
-*more to come later 2021-01-15
-
 [zXAmZwiG3yfA](https://sendvid.com/iauzyb8q)
 
 [zvhAF87Dreod](https://sendvid.com/4lr6u5mc)
@@ -82,14 +80,6 @@
 
 [wItTIbLfoXBY](https://sendvid.com/4ds5s79h)
 
-[WOR0K16Wbi2I](https://sendvid.com/2jdicqj0)
-
-[Wm6o3hXiTzPa](https://sendvid.com/e564fk7r)
-
-[wCbOT5Lhqo7n](https://sendvid.com/9825wv77)
-
-[WaNexB6Lznsq](https://sendvid.com/th8ofjkl)
-
 [W9d9UvLeBYFu](https://sendvid.com/vplkfb77)
 
 [VYDYrP2y5GPi](https://sendvid.com/za3gfvfd)
@@ -98,4 +88,4 @@
 
 [vSIv4wwvoemh](https://sendvid.com/6o4ryb8y)
 
-
+[vwn5xmDvxfqV](https://sendvid.com/43f9zz0m)
