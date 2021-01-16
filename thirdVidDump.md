@@ -130,6 +130,12 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 
 [OqD8bxN4Nnkt](https://sendvid.com/05klnk0m)
 
+[QNPHAGgOFQAp](https://sendvid.com/5spm0344)
+
+[Q6DY9FC1N3Rp](https://sendvid.com/xw5rhovc)
+
+[onVXm7gZrnOG](https://sendvid.com/lnxp8s2d)
+
 [oINbKytzEefK](https://sendvid.com/rko6v65e)
 
 [OgrPDRox3rYY](https://sendvid.com/avxll1k7)
