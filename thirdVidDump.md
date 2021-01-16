@@ -79,3 +79,9 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 [qqB0N0VrBJt2](https://sendvid.com/5xz81vam)
 
 [QPVWWBfaGylL](https://sendvid.com/slfjnnaj)
+
+[RBaqoUEvZ7bX](https://sendvid.com/2ky52udo)
+
+[QrSz0Vfcz3kt](https://sendvid.com/uvpxd2la)
+
+[QPVWWBfaGylL](https://sendvid.com/slfjnnaj)
