@@ -100,3 +100,24 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 
 [FRPR3VqfBzIF](https://sendvid.com/ew1so1jx)
 
+[fpdroYF3R9Fm](https://sendvid.com/mhsbgvg0)
+
+[evguRVYcqPlB](https://sendvid.com/j64330z1)
+
+[eQuAGfU87pPB](https://sendvid.com/sg82sg7h)
+
+[EniSIqkMzJqV](https://sendvid.com/jv62b6i2)
+
+[eLSgf3w5r4PI](https://sendvid.com/zdj0q6z4)
+
+[ftbEXsKvOCYn](https://sendvid.com/wq6w5tr1)
+
+[EjkHpFX9ATgp](https://sendvid.com/3f4azr1x)
+
+[ehSae1O1C9pt](https://sendvid.com/xj8bde29)
+
+[eGWFiGU2WtR8](https://sendvid.com/drx79k99)
+
+[fNodpDg9wS24](https://sendvid.com/gprurdk8)
+
+[ehioYC9DKqYv](https://sendvid.com/avsoh8ph)
