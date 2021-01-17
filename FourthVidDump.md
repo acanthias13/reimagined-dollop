@@ -2,8 +2,6 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 
 ## Fourth batch of videos
 
-*more to come*
-
 [oINbKytzEefK](https://sendvid.com/ts5c2m8s)
 
 [OgrPDRox3rYY](https://sendvid.com/xmuw7ugi)
