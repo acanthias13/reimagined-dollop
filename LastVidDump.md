@@ -23,3 +23,19 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 [Dwx71JWXxoKv](https://sendvid.com/fleq9iwz)
 
 [dyxOuy25PXw6](https://sendvid.com/mrutkb0v)
+
+[Ds6ZUPblNzv4](https://sendvid.com/w8c7akmo)
+
+[dH7rHe3d36Wo](https://sendvid.com/6f09vcdl)
+
+[DMtXYvwqu6HV](https://sendvid.com/fya6hnmf)
+
+[DIPqf1K2PJba](https://sendvid.com/6tzoe9sz) *Jesus saves*
+
+[Dr91Sy9JPaqz](https://sendvid.com/7szfqxng)
+
+[dF2z7e7CkqqD](https://sendvid.com/3q7lafey)
+
+[dCrPCc3Hvnpm](https://sendvid.com/krmi654m)
+
+[d5Xmqp4NDLs6](https://sendvid.com/wc7z3ues)
