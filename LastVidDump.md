@@ -100,3 +100,23 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 
 [bVPcTXidhYjP](https://sendvid.com/32o68ut8)
 
+[b0s87hxTGufb](https://sendvid.com/w6mlrtse)
+
+[b0gyazQqn9kx](https://sendvid.com/4jpfl0hu) *lots of clearly identifiable faces*
+
+[b5lCVIHnrm2q](https://sendvid.com/39d8kzlhhttps://sendvid.com/39d8kzlh)
+
+[AzVSx3ypAHRi](https://sendvid.com/g8zsh5or)
+
+[AYijYnzI0Gbr](https://sendvid.com/zb7t2qzg) *breaching doors and throwing things at cops*
+
+[aYhh5zOFFNcR](https://sendvid.com/mrh63dv8)
+
+[AwZ6iEJ07eyx](https://sendvid.com/gjtuize3)
+
+[AwME4HLA6vtW](https://sendvid.com/2b4ji3jk)
+
+[ATHRnnmNpayv](https://sendvid.com/rmpxnhnh)
+
+[8ziKp2FKa3Sb](https://sendvid.com/b39rqoi1)
+
