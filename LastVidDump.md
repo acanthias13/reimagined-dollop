@@ -2,8 +2,6 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 
 ## Sixth and final batch of videos
 
-*more to come*
-
 [eLSgf3w5r4PI](https://sendvid.com/cdevvglz)
 
 [EjkHpFX9ATgp](https://sendvid.com/76u4mwx8)
@@ -125,3 +123,5 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 [7lZbNvTpYzCg](https://sendvid.com/x1ryvz2l)
 
 [7Fu9YJVZmNkj](https://sendvid.com/uei30faq)
+
+[8L4mcsc4jEmg](https://sendvid.com/afdmryge)
