@@ -50,4 +50,13 @@ The metadata associated with the videos can be found [here](annotations2.csv). P
 
 [cwoMBUgoUj8T](https://sendvid.com/ufqx162e)
 
+[CQtHtEEczheT](https://sendvid.com/rharwwze)
+
+[cONvl0p08sMY](https://sendvid.com/cu9thw5w) *Bloody chin guy part 2? Or just a repeat?*
+
+[cmzbWnPI5Jgs](https://sendvid.com/38c880ux)
+
+[ckvcLvKYv4cd](https://sendvid.com/ow1fch83)
+
+[CtpFcLr34Uql](https://sendvid.com/y5v7l3zs)
 
